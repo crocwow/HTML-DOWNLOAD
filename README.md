@@ -1,0 +1,1 @@
+-----> here is the CS2 settings net..
